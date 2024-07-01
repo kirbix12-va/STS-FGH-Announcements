@@ -1,3 +1,3 @@
 # STS-FGH-Announcements
 
-Coming soon.
+Coming soon. (no seriously)
